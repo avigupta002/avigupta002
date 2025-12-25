@@ -27,7 +27,7 @@ Welcome to my corner of the internet! I'm a curious and creative **software deve
 - ☕ Coffee enthusiast and part-time sci-fi nerd
 
 ## 📬 Let's Connect
-- 📧 Email me: ravi5838793@example.com
+- 📧 Email me: ravi5838793@gmail.com
 
 ---
 
